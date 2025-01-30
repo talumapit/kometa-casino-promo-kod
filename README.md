@@ -4,7 +4,7 @@
 
  ## Бонусы за промокод  Kometa Casino: 100% к депозиту и 100 фриспинов!
 
- ## [САЙТ KOMETA CASINO](https://linkcasino.ru/kometa_fvip)
+ ## [САЙТ KOMETA CASINO](https://linkcasino.ru/kometa_e100)
 
 
  
